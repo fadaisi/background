@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cybertechpvssy
+- 👋 Hi, I’m @fadaisi
 - 👀 I’m interested in african diaspora, hair styles, braids technoloy, IFA religion and traditional yoruba people, kemet kush and nubian empire, latin america african roots, indgenous religion and culture
 - 🌱 I’m currently learning 3D import, video installation, and VR experience
 - 💞️ I’m looking to collaborate on new techonologies research
